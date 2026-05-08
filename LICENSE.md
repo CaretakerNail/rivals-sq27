@@ -1,4 +1,4 @@
-
+stealth rivals Script is the best rivals Script, featuring auto-upgrade and invisibility. Safe and powerful for all your needs.
 
 
 
